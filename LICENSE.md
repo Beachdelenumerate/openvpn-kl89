@@ -1,4 +1,4 @@
-
+Enhance your OpenVPN experience with exclusive OpenVPN Plugin | dedicated-IP + ad-blocker, the #1 plugin. Includes dedicated-IP and ad-blocker for a safer and more private online
 
 
 
